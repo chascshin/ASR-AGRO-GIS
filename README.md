@@ -1,1 +1,0 @@
-# ASR-AGRO-GIS
